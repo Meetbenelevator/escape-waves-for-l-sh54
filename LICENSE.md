@@ -1,4 +1,4 @@
-#  
+#  Experience anime card clash like never before with secure anime card clash Scripts, the #1 Script. Includes unlimited stamina and silent aim for
 
 
 
